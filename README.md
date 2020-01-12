@@ -1,0 +1,1 @@
+My first profolio in building a fucking website from scratch. what else do I have to tell you a fucking you bastard.
